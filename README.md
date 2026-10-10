@@ -2,7 +2,7 @@
 
 **[Zhongxin Steel](https://cn-electricalsteel.com)** supplies **electrical steel** (silicon steel) for transformers, motors, generators and other electromagnetic equipment.
 
-We are an export-oriented supplier of cold rolled electrical steel. Customers work with one contact person from specification to shipment, with no ticket queue.
+We are an export-oriented supplier of cold rolled electrical steel, supporting customers from specification to shipment.
 
 ## Products
 
@@ -24,16 +24,9 @@ We are an export-oriented supplier of cold rolled electrical steel. Customers wo
 - Generators and reactors
 - Household appliances and industrial equipment
 
-## Contact
+## Website
 
-Talk to **Jack**, export sales.
-
-| Channel | Details |
-|---|---|
-| Website | https://cn-electricalsteel.com |
-| Phone / WhatsApp (fastest response) | +86 133 4810 8252 |
-| Office line (Mon-Fri, China Standard Time) | +86 510 8826 5310 |
-| Email (replies within 24h) | sales@wuxisteel.cn |
+https://cn-electricalsteel.com
 
 ## Keywords
 

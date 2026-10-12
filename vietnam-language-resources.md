@@ -6,7 +6,7 @@ Zhongxin Steel supplies CRGO and CRNGO electrical steel for transformer cores, m
 
 ## Vietnamese Version
 
-[About Us - Vietnamese Translation](https://1-cn--electricalsteel-com.translate.goog/about-us/?_x_tr_enc=1&_x_tr_sl=auto&_x_tr_tl=vi&_x_tr_hl=zh-CN&_x_tr_pto=wapp)
+[Zhongxin Steel - Vietnamese Translation](https://1-cn--electricalsteel-com.translate.goog/?_x_tr_enc=1&_x_tr_sl=auto&_x_tr_tl=vi&_x_tr_hl=zh-CN&_x_tr_pto=wapp)
 
 ## Original Website
 
